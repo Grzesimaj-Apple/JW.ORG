@@ -1,1 +1,1 @@
-# JW.ORG. Ja nie mam Smartfon Apple iPhone. Ktoś źle zrozumiał do czego służy konto Grzesimaj-Apple. Dlaczego nie ma dostępu do konta  Tangem-cmd?
+#JW.ORG. I don't have an Apple iPhone smartphone. Someone misunderstood what the Grzesimaj-Apple account is for. Why can't I access my Tangem-cmd account?
